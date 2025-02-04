@@ -1,5 +1,3 @@
-# .github
-
 ## V𝙸D𝙴A ~ Jókislány ((2025)) T𝚎lj𝚎s F𝚒lm M𝚊gy𝚊rul O𝚗l𝚒n𝚎
 
 Jókislány 𝟸𝟶𝟸𝟻 | Jókislány 𝚃𝚎𝚕𝚓𝚎𝚜 𝙵𝚒𝚕𝚖 𝙼𝚊𝚐𝚢𝚊𝚛𝚞𝚕 | Jókislány 𝙽é𝚣𝚍 𝙾𝚗𝚕𝚒𝚗𝚎 | Jókislány 𝚅𝚒𝚍𝚎𝚊 𝙷𝙳 | Jókislány 𝙸𝚗𝚍𝚊𝚟𝚒𝚍𝚎𝚘 | Jókislány 𝚖𝚘𝚣𝚒𝚙𝚛𝚎𝚖𝚒𝚎𝚛𝚎𝚔
